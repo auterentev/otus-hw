@@ -1,3 +1,3 @@
 Студент:
-Alexander Terentev (александр Терентьев)
+Alexander Terentev (Александр Терентьев)
 terentevayu@nspk.ru
